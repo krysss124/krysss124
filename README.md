@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Krystle Ragsdale, @krysss124
+- 👀 I’m interested in Software Engineering
+- 🌱 I’m currently learning: Javascript Fundamentals
+- 💞️ I’m looking to collaborate on: nothing at the moment 
+- 📫 How to reach me: email is: krystle.ragsdale2006@gmail.com
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: I used to be a professional ballroom dancer!
